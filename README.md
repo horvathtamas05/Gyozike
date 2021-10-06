@@ -1,1 +1,6 @@
 # Gyozike
+Bazdmegdekirályvagyok
+
+
+
+ja
