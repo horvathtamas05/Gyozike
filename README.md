@@ -4,3 +4,4 @@ Bazdmegdekirályvagyok
 
 
 ja
+eznem megh
